@@ -4,6 +4,7 @@ lalallaa ,, teehee
 # ![cab05901d692cb04cdae6b4b9a5241e1](https://github.com/user-attachments/assets/05481b54-2695-4e27-946b-0233a7dace25)
 ### about me,, :
 - im a person that is VERY desperate to find a project moon fan as my oomf lists .
+- i dont like very bright colors (eyestrain targeted) because it causes me headache or stress due to the bright colors .
 - i love a man that is 183 cm tall, birthday at january 3rd. an efficient, gentle, truthful with a speciality is negotiation. likes red meat dragon fruit and curry, disliked stuffy outfit, with a hobby which is cooking and drying flowers .
 - main fandoms or current fandoms im active is,, phighting , bungou stray dogs , project moon , die of death , analog horror allalala .
 - i dislike how mangoes smell,, sorry .
